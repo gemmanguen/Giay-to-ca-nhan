@@ -8,6 +8,8 @@ http://hanquocngaynay.info/visa/gia-han-visa-lam-viec-e7/
 
 https://hanquoc.kr/visa-e-7/
 
+https://diemtinhanquoc.com/2019/03/26/cach-lay-giay-chung-nhan-thu-nhap-%EC%86%8C%EB%93%9D%EA%B8%88%EC%95%A1%EC%A6%9D%EB%AA%85/
+
 ## Thay doi dia chi noi cu tru:
 
 경기도 용인시 수지구 풍덕천동 69-122 파크빌 205호. 16833
