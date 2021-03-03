@@ -2,6 +2,8 @@
 
 ## Doi visa F2:
 
+https://diemtinhanquoc.com/2019/12/03/huong-dan-xin-visa-f2-tinh-diem-f2-7/
+
 https://www.visaskorea.com/f-2-7-long-term-residency-visa/
 
 [Web발신]
