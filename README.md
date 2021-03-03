@@ -5,76 +5,45 @@
 ## Thien:
 
 1. 여권, 외국인등록증, 수수료 6만원, 통합신청서
-
 2. 고용계약서 원본 및 사본
-
 3. 재직증명서
-
 4. (개인)소득증명 서류: 소득금액증명원(세무서 발급)
-
 (필요시 부가가치세 과세표준증명원 추가 요구될 수 있음)
-
 5.(회사)납부내역증명(정상영업 및 세금체납여부 확인 필요)
-
 6. 사업자등록증사본 또는 법인등기사항전부증명서
-
 7. 체류지입증서류: 체류기간만료예고통지서 또는 거주숙소제공확인서+숙소제공자의 신분증 사본+ 부동산 임대차계약서/부동산등기부등본 등 (숙소 제공자 신분증상 주소와 외국인에게 제공하는 숙소의 주소가 동일한 경우에는 임대차계약서 불필요)
-
 8. 고용보험가입자명부(3개월 이상 계속하여 고용한 내국인 수만 인정)
-
 9. 사업장용 고용보험피보험자격 취득 내역, 사업장고용정보현황
-
-
-
-
 서류 구비후 관할사무소에 신청해볼수 있으나,허가여부는 심사후 결정되며, 추가서류가 요구 될 수 있습니다.
-
-
-
-
 1. 여권, 외국인등록증, 수수료 6만원, 통합신청서
-
 Passport, Alien Registration Card, Fee 60,000 Won, Application Form
-
 2. 고용계약서 원본 및 사본
-
 Original and copy of employment contract
-
 3. 재직증명서
-
 Certificate of employment
-
 4. (개인)소득증명 서류: 소득금액증명원(세무서 발급)
-
 (Individual) Proof of income: Proof of income amount (issued by tax office)
-
 (필요시 부가가치세 과세표준증명원 추가 요구될 수 있음)
-
 (Additional Certificate of VAT taxation may be required if necessary.)
-
 5.(회사)납부내역증명(정상영업 및 세금체납여부 확인 필요)
-
 Proof of payment (Company) (Required to check whether normal business and tax is paid)
-
 6. 사업자등록증사본 또는 법인등기사항전부증명서
-
 Copy of business registration certificate or certificate of registration of corporation
-
 7. 체류지입증서류: 체류기간만료예고통지서 또는 거주숙소제공확인서+숙소제공자의 신분증 사본+ 부동산 임대차계약서/부동산등기부등본 등 (숙소 제공자 신분증상 주소와 외국인에게 제공하는 숙소의 주소가 동일한 경우에는 임대차계약서 불필요)
-
 Documents of residence confirmation: Notice of expiration of stay or confirmation of accommodation provided + Copy of ID card of the provider + Real estate lease agreement / certified copy of real estate registration (e.g. Contract not required)
-
 8. 고용보험가입자명부(3개월 이상 계속하여 고용한 내국인 수만 인정)
-
 List of subscribers of employment insurance (only the number of Koreans who have been employed for more than 3 months)
-
 9. 사업장용 고용보험피보험자격 취득 내역, 사업장고용정보현황
-
 Status of acquisition of qualifications for employment insurance
 
+cái m chuẩn bị là muc 1 2 4 7 nhe
+
 application form. 
+
 chung minh thu nhap thue
+
 hop dong lao dong
+
 hop dòn thue nha
 
 ## 
