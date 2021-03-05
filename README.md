@@ -1,5 +1,12 @@
 # Giay-to-ca-nhan
 
+## Ly lich tu phap
+
+- lí lịch tư pháp số 1/2
+- nhờ bố mẹ cầm hộ khẩu ra Sở tư pháp tỉnh HD là dc, mất 2 tuần làm việc
+- xong rồi xin hợp pháp hóa lãnh sự LSQ hQ tại VN: https://overseas.mofa.go.kr/vn-vi/brd/m_2158/view.do?seq=715225&srchFr=&amp;srchTo=&amp;srchWord=&amp;srchTp=&amp;multi_itm_seq=0&amp;itm_seq_1=0&amp;itm_seq_2=0&amp;company_cd=&amp;company_nm=&page=1
+ 
+
 ## Doi visa F2:
 
 https://diemtinhanquoc.com/2019/12/03/huong-dan-xin-visa-f2-tinh-diem-f2-7/
