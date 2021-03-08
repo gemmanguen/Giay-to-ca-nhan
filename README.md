@@ -2,7 +2,9 @@
 
 ## Gia han ho chieu
 
-https://www.facebook.com/groups/hanquocngaynay/permalink/3681156321904684/
+# https://www.facebook.com/groups/hanquocngaynay/permalink/3681156321904684/
+
+# Cấp lại cmt hết hạn: https://luatminhkhue.vn/xin-cap-lai-chung-minh-nhan-dan-da-het-han-thi-lam-o-dau-.aspx
 
 ## Ly lich tu phap
 
