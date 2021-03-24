@@ -1,5 +1,9 @@
 # Giay-to-ca-nhan
 
+http://hanquocngaynay.info/visa/chung-thuc-giay-to-o-viet-nam-su-dung-o-han-quoc/
+
+http://hanquocngaynay.info/visa/ly-lich-tu-phap/
+
 ## Gia han ho chieu
 
 # https://www.facebook.com/groups/hanquocngaynay/permalink/3681156321904684/
