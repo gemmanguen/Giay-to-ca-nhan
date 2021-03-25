@@ -16,6 +16,9 @@ http://hanquocngaynay.info/visa/ly-lich-tu-phap/
 - nhờ bố mẹ cầm hộ khẩu ra Sở tư pháp tỉnh HD là dc, mất 2 tuần làm việc
 - xong rồi xin hợp pháp hóa lãnh sự LSQ hQ tại VN: https://overseas.mofa.go.kr/vn-vi/brd/m_2158/view.do?seq=715225&srchFr=&amp;srchTo=&amp;srchWord=&amp;srchTp=&amp;multi_itm_seq=0&amp;itm_seq_1=0&amp;itm_seq_2=0&amp;company_cd=&amp;company_nm=&page=1
  
+ - luật mới như hôm qua mình đi là cần có lltp, vì chưa ra 근로소득 2020 nên bạn có thể nộp 근로소득 2019 và 원천징수영수증 của 2020 có đóng dấu của công ty nữa nhé!
+
+
 
 ## Doi visa F2:
 
