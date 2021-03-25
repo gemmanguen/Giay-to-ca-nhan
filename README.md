@@ -18,7 +18,7 @@ http://hanquocngaynay.info/visa/ly-lich-tu-phap/
  
  - luật mới như hôm qua mình đi là cần có lltp, vì chưa ra 근로소득 2020 nên bạn có thể nộp 근로소득 2019 và 원천징수영수증 của 2020 có đóng dấu của công ty nữa nhé!
 
-
+https://www.facebook.com/groups/hoif2/
 
 ## Doi visa F2:
 
