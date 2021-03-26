@@ -1,5 +1,23 @@
 # Giay-to-ca-nhan
 
+XEM KẾT QUẢ THUẾ NĂM 2020
+Để biết được chính xác kết quả quyết toán thuế của các năm, bạn có thể tự in 근로소득원천징수영수증 trên HomeTax.
+HƯỚNG DẪN: http://hanquocngaynay.info/bien-lai-thue 
+Với loại giấy tờ này, bạn có thể xem chính xác số tiền thu nhập tính thuế và cả thu nhập không tính thuế của mình.
+Trên này cũng ghi rõ các mục giảm trừ mình được hưởng tính ra là bao nhiêu.
+Và quan trọng nhất, số tiền thuế mình được hoàn hay phải đóng thêm.
+Vì đến ngày 1/5 hằng năm mới có thể in Giấy chứng nhận thu nhập chính thức (소득금액증명원) nên nếu bạn cần 1 loại giấy để chứng minh thu nhập TRƯỚC KHI CÓ BẢN KIA thì bạn có thể và nên sử dụng bản 근로소득원천징수영수증 này.
+Lưu ý: Con số tổng trên 근로소득원천징수영수증 luôn to hơn 소득금액증명원 vì có liệt kê cả thu nhập KHÔNG CHỊU THUẾ. Nhưng vẫn CÓ THỂ không bằng con số tiền bạn được công ty tính (trước khi trừ thuế, bảo hiểm các kiểu).
+Ví dụ: 
+Xem các bài hướng dẫn khác tại: hanquocngaynay.info/thue-az
+Xem cách giải thích, hướng dẫn và trao đổi về thuế tại Seminar thuế đầu năm nay theo link: https://www.youtube.com/channel/UCUtqG4CT0VmiRa2SpHlBggQ
+Bài này được post trên page Hàn Quốc Ngày Nay, đồng thời ở 4 nhóm:
+- Viet Professionals in Korea
+- Hàn Quốc Ngày Nay
+- Hội E7 tại Hàn Quốc
+- Hội F2 tại Hàn Quốc
+- 
+
 http://hanquocngaynay.info/visa/chung-thuc-giay-to-o-viet-nam-su-dung-o-han-quoc/
 
 http://hanquocngaynay.info/visa/ly-lich-tu-phap/
