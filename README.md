@@ -4,6 +4,8 @@ Cac chi phi tai DSQ Han quoc:
 
 https://thongtinhanquoc.com/phi-lam-ho-chieu/
 
+https://vnembassy-seoul.mofa.gov.vn/vi-vn/News/EmbassyNews/Trang/TH%C3%94NG-B%C3%81O-V%E1%BB%80-VI%E1%BB%86C-%C4%90%E1%BA%B6T-L%E1%BB%8ACH-H%E1%BA%B8N-ONLINE--L%C3%80M-TH%E1%BB%A6-T%E1%BB%A4C-L%C3%83NHS%E1%BB%B0.aspx
+
 XEM KẾT QUẢ THUẾ NĂM 2020
 Để biết được chính xác kết quả quyết toán thuế của các năm, bạn có thể tự in 근로소득원천징수영수증 trên HomeTax.
 HƯỚNG DẪN: http://hanquocngaynay.info/bien-lai-thue 
