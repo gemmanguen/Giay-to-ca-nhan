@@ -1,5 +1,9 @@
 # Giay-to-ca-nhan
 
+Cac chi phi tai DSQ Han quoc:
+
+https://thongtinhanquoc.com/phi-lam-ho-chieu/
+
 XEM KẾT QUẢ THUẾ NĂM 2020
 Để biết được chính xác kết quả quyết toán thuế của các năm, bạn có thể tự in 근로소득원천징수영수증 trên HomeTax.
 HƯỚNG DẪN: http://hanquocngaynay.info/bien-lai-thue 
