@@ -192,7 +192,53 @@ hop dong lao dong
 
 hop dòn thue nha
 
-## 
+## Nhận thẻ xanh (F-5-11) ngay sau khi tốt nghiệp Tiến sĩ (특정분야의 능력소유자에 대한 영주사증)
+
+Đối với các bạn tốt nghiệp Tiến sĩ ở Hàn Quốc thì có lẽ đây là cách nhanh nhất để lấy thẻ xanh F-5.
+Các anh chị đã tốt nghiệp TS (bất kể nước nào) và đang đi làm postdoc tại Hàn Quốc dưới dạng hợp đồng (không phải nhân viên chính thức) thì có thể đổi sang visa loại này sau 3 năm làm việc nếu thỏa mãn các điều kiện bên dưới.
+Mình nộp hồ sơ ở cục XNC Incheon ngay sau khi nhận bằng tốt nghiệp TS và chưa đi làm ngày nào. Lúc nộp hồ sơ thì nhân viên cục XNC bảo hồ sơ đủ điều kiện nhưng cần xác nhận lại. Thời gian ra kết quả F-5-11 là 2 tháng tính từ ngày nộp hồ sơ.
+
+I. Điều kiện: Phải thỏa mãn một trong ba điều kiện sau:
+Đạt tối thiểu 30 điểm trong phần bắt buộc và tối thiểu 50 điểm tổng cộng hai phần bắt buộc và tự chọn.
+Đạt thối thiểu 20 điểm trong phần bắt buộc và tối thiểu 100 điểm tổng cộng hai phần bắt buộc và tự chọn.
+Đạt tối thiểu 80 điểm tổng cộng hai phần bắt buộc và tự chọn, và cư trú tại Hàn Quốc tối thiểu 1 năm kể từ ngày đăng ký người nước ngoài.
+Các điều kiện bắt buộc/tự chọn và cách tính điểm có thể tham khảo tại http://hanquocngaynay.info/.../f-5-11-the-xanh-danh-cho.../,
+Riêng phần tiếng Hàn thì cả bằng TOPIK lẫn KIIP đều được tính điểm, cụ thể như sau:
+Hoàn thành lớp 5: có 이수증: 15 điểm; có 합격 증, không có 이수증: 10 điểm.
+Hoàn thành lớp 4, có 이수증: 8 điểm;
+Hoàn thành lớp 3 (이수-thi đậu chứ không phải học lại lần 2 được lên lớp): 5 điểm.
+Các bạn có chứng chỉ TOPIK thì tham khảo cách tính điểm ở link trên.
+
+II. Hồ sơ cần chuẩn bị:
+Đơn đăng ký mẫu số 34, hộ chiếu, thẻ đăng ký người nước ngoài, ảnh, lệ phí 230 nghìn won.
+Giấy bảo lãnh của người Hàn hoặc người có visa F-5.
+Giấy khai báo thông tin visa F-5 (영주 자격신청자 기본정보)
+Các giấy tờ để chứng minh các phần được cộng điểm. Do mỗi người tính điểm theo các tiêu chí khác nhau nên giấy tờ cũng khác nhau. Các bạn tham khảo link bên trên để tính điểm và chuẩn bị các giấy tờ cho phù hợp.
+
+III. Trường hợp cụ thể (của mình):
+Mình chọn làm hồ sơ theo điều kiện số 3 ở mục I: Đạt tối thiểu 80 điểm tổng cộng hai phần bắt buộc và tự chọn, và cư trú tại Hàn Quốc tối thiểu 1 năm kể từ ngày đăng ký người nước ngoài. Tổng cộng được 85/80 điểm.
+1. Các giấy tờ cơ bản như phần 1 và 2 ở mục II.
+2. Có ít nhất 2 bằng sáng chế (patent) (지식재산권 보유: 특허권 2개 이상 보유): 25 điểm
+Mình nộp bản photo các patents, trong mỗi patent có thể có nhiều tác giả, chỉ cần có tên mình trong đó là được.
+3. Bằng cấp: 20 điểm
+Nộp 학위증명서 in từ website của trường, có mang theo bản chính để phòng trường hợp nhân viên cục XNC hỏi.
+4. Tiếng Hàn (Hoàn thành lớp 5, có 이수증): 15 điểm
+In 이수증, 합격 증, 교육 확인서 từ trang web socinet.go.kr
+5. Học tập ở Hàn Quốc: 10 điểm
+Mục này có thể chứng minh qua bằng cấp và thẻ đăng ký người nước ngoài (visa du học).
+6. Cư trú ở Hàn Quốc: 10 điểm
+Được chứng minh qua thẻ đăng ký người nước ngoài.
+7. Sống cùng gia đình ở Hàn Quốc: 5 điểm
+Mình nộp 외국사실증명서 trong đó có tên vợ, photo thẻ cư trú của vợ. Lưu ý là các bạn phải khai báo thành viên gia đình với cục XNC thì lúc in ra mới có tên thành viên gia đình.
+Nếu các bạn đang độc thân mà muốn lấy 5 điểm ở mục này thì nên kết hôn gấp :)))
+8. Các giấy tờ khác:
+Giải thưởng Nghiên cứu xuất sắc do trường cấp (우수 대학원생 포상).
+Các bài báo journal và hội nghị đã đăng.
+Mình được một công ty nhận làm việc dưới dạng nhân viên chính thức, và mình có nộp thêm các giấy tờ để chứng minh việc này. Tuy nhiên, chỉ cần đủ điểm theo 1 trong 3 điều kiện ở mục I là được chứ không bắt buộc phải có công việc (mình đã hỏi nhân viên ở cục XNC). Nếu các bạn đã đi làm được 1 năm thì có thể nộp thêm giấy tờ để được cộng điểm, hoặc có thể tham khảo visa F-5-15 hay các loại F-5 khác.
+Nếu các bạn định lấy điểm mục kinh nghiệm nghiên cứu thì thời gian nghiên cứu chỉ được tính sau khi tốt nghiệp TS.
+Hy vọng thông tin trên sẽ giúp ích cho các bạn có ý định đổi sang F-5-11.
+
+##
 
 http://hanquocngaynay.info/thu-tuc/dat-lich-hen-tren-hikorea/
 
