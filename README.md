@@ -1,6 +1,10 @@
 # Giay-to-ca-nhan
 
-Cac chi phi tai DSQ Han quoc:
+## Khai bao thong tin ho chieu
+
+https://diemtinhanquoc.com/2019/11/13/huong-dan-khai-bao-doi-thong-tin-ho-chieu-online-len-cuc-xnc/
+
+## Cac chi phi tai DSQ Han quoc:
 
 https://thongtinhanquoc.com/phi-lam-ho-chieu/
 
