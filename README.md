@@ -7,6 +7,8 @@ mình mới đi làm f5 về nên có 1 số lưu ý cho các bạn sắp tới 
 2. giấy bảo lãnh: nhớ ghi thời hạn bảo lãnh rõ ràng (from, to). và họ cần 신분증 사본 của người bảo lãnh.
 3. 정규직증명서: bạn cần nộp 근로 hoặc 고용계약서(chỉ mention ngày 입사)   không phải 연봉계약 (loại đx renew hằng năm) phí làm thẻ 30k, 200k phí đổi.
 
+https://hanquoc.kr/thu-tuc-xin-visa-f-5-tai-han-quoc/
+
 ## Khai bao thong tin ho chieu
 
 https://diemtinhanquoc.com/2019/11/13/huong-dan-khai-bao-doi-thong-tin-ho-chieu-online-len-cuc-xnc/
