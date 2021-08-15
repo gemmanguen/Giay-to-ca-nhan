@@ -1,6 +1,25 @@
 # Giay-to-ca-nhan
 
-## F5
+## F5-15
+
+Documents F5-15 2021:
+
+--(1) Don xin cap visa
+--(2) Anh the
+--(3) Passport goc
+--(4) Alien card
+--(5) Ly lich tu phap so 1
+--(6) Bang cap PhD
+(7) Giay bao lanh tu cong dan HAN QUOC ( Xin chi Be, xin o sep --  nhớ ghi thời hạn bảo lãnh rõ ràng (from, to). và họ cần 신분증 사본 của người bảo lãnh.)
+(8) Tu cong ty: [- 정규직증명서: bạn cần nộp 근로 hoặc 고용계약서(chỉ mention ngày 입사) không phải 연봉계약 (loại đx renew hằng năm)]
+      (8.1) HD lao dong --------------------------- 고용계약서
+      (8.3) Giay chung nhan nhan vien ------- 정규직증명서
+      (8.2) Giay chung nhanh kinh doanh --- 사업자등록증사본 또는 법인등기사항전부증명서
+(9) Giay chung minh thu nhap ca nhan
+--(10) Hop dong thue nha
+--(11) 230,000 WON
+
+http://hanquocngaynay.info/visa/f5-15/
 
 mình mới đi làm f5 về nên có 1 số lưu ý cho các bạn sắp tới đi làm. nơi nội hồ sơ: seoul immigration office(mokdong)
 1. lí lịch tư pháp: họ cần số 1, nhưng số 2 cũng ok. bạn nhớ bảo họ check nếu đã làm loại 2.
