@@ -1,5 +1,9 @@
 # Giay-to-ca-nhan
 
+## [in giấy chứng nhận đăng ký người nước ngoài FREE trên web minwon.go.kr] 
+
+http://hanquocngaynay.info/visa/in-giay-xac-nhan-nguoi-nuoc-ngoai-2/
+
 ## F5-15
 
 Documents F5-15 2021:
