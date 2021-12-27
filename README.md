@@ -10,6 +10,10 @@ https://hanquocngaynay.info/visa/f5-15/
 
 http://hanquocngaynay.info/visa/in-giay-xac-nhan-nguoi-nuoc-ngoai-2/
 
+## 4 insurance
+
+https://diemtinhanquoc.com/2019/02/19/tong-quan-4-loai-bao-hiem-xa-hoi-lon-o-han-quoc-4%EB%8C%80%EB%B3%B4%ED%97%98-cach-tinh-so-tien-bao-hiem-can-dong-theo-thu-nhap/amp/
+
 ## F5-15
 
 Documents F5-15 2021:
