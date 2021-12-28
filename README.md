@@ -6,6 +6,13 @@ https://hoinhaphanquoc.com/huong-dan-thu-tuc-lam-the-xanh-cho-nguoi-tot-nghiep-t
 
 https://hanquocngaynay.info/visa/f5-15/
 
+Em xin them o cty giay
+
+근로소득원천징수 영수증
+
+Trong do se ghi tong luong em nhan o cty
+
+
 ## [in giấy chứng nhận đăng ký người nước ngoài FREE trên web minwon.go.kr] 
 
 http://hanquocngaynay.info/visa/in-giay-xac-nhan-nguoi-nuoc-ngoai-2/
