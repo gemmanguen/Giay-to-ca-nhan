@@ -62,6 +62,28 @@ mình mới đi làm f5 về nên có 1 số lưu ý cho các bạn sắp tới 
 
 https://hanquoc.kr/thu-tuc-xin-visa-f-5-tai-han-quoc/
 
+## NHẬP HỌC TIỂU HỌC CHO TRẺ QUỐC TỊCH NƯỚC NGOÀI
+
+Mình mới lên trường tiểu học để hỏi thăm về vụ nhập học cho con sinh 2015.
+
+Hôm thứ 6, sau khi đổi địa chỉ cư trú thì mình cũng hỏi ở 주민센터 vụ 취학 통지서. Nhưng mỗi địa phương mỗi khác. Chỗ anh Tran Thien Chien thì 주민센터 họ cấp cho tờ đó còn phường mình họ bảo chiều nay lên trường nên mình đã hỏi.
+
+Trường sau khi kiểm tra địa chỉ cư trú (trong 외국인등록사실증명 của con mình đã in sẵn) thì đưa tờ giấy danh sách giấy tờ này để chuẩn bị và ngày 5/1 này nộp. Thứ 4 này, từ 15h. Hình như các trường công lập đều có thời gian nộp hồ sơ như nhau.
+
+1. Kiểm tra khu vực mình ở thuộc tuyến của trường nào ở đây: https://schoolzone.emac.kr/
+Nhiều khi khoảng cách rất gần nhưng nhà lại khác tuyến với trường gần nhất (như nhà mình) nên bạn cần kiểm tra kĩ để chuyển nhà hay tìm cách sao cho phù hợp.
+
+3. Giấy 출입국사실증명 phải ra 주민센터 gần nhất (구청, 시청, 출입국 cũng được) mà in. Người nước ngoài ko tự in online được.
+In cho cả BA MẸ và CON, cả 3 người.
+
+4. Giấy 외국인등록사실증명 in ở gov.kr (miễn phí) hoặc 주민센터 (2000원).
+In cho cả BA MẸ và CON, cả 3 người.
+
+5. In chứng nhận tiêm chủng của con tại website nip.kdca.go kr hoặc ra 보건소, 예방접종센터. Ở web thì ai chưa đk thì cần đk nick rồi đk con cái vào trước khi in.
+Trên GOV.kr chỉ cho in mỗi bản thân (본인).
+
+Có nhóm chat cho ba mẹ các bé sinh năm 2014~2015 để cùng trao đổi nhanh các vấn đề của các cháu. Ba mẹ muốn join thì comment bên dưới hay PM mình nhé.
+
 ## Khai bao thong tin ho chieu
 
 https://diemtinhanquoc.com/2019/11/13/huong-dan-khai-bao-doi-thong-tin-ho-chieu-online-len-cuc-xnc/
