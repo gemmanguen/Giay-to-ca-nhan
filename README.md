@@ -12,7 +12,7 @@ Em xin them o cty giay
 
 Trong do se ghi tong luong em nhan o cty
 
-## F5 submission note:
+## F5 submission note: (cục SUWON)
 
 Chỗ nhận hồ sơ F5 riêng biệt với chỗ nhận hs E7 hoặc chỗ khác, ko phải chờ.
 
