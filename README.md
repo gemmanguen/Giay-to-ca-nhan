@@ -12,6 +12,13 @@ Em xin them o cty giay
 
 Trong do se ghi tong luong em nhan o cty
 
+## F5 submission note:
+
+Chỗ nhận hồ sơ F5 riêng biệt với chỗ nhận hs E7 hoặc chỗ khác, ko phải chờ.
+
+Cần chuẩn bị cmt của người bảo lãnh, nếu ko tiện cho, có thể bảo fax sau.
+
+Tốt nhất là thời hạn hết visa tạm thời là hơn 6 tháng.
 
 ## [in giấy chứng nhận đăng ký người nước ngoài FREE trên web minwon.go.kr] 
 
