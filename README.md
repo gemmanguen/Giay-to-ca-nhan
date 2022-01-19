@@ -14,7 +14,7 @@ Trong do se ghi tong luong em nhan o cty
 
 ## F5 submission note: (cục SUWON)
 
-Chỗ nhận hồ sơ F5 riêng biệt với chỗ nhận hs E7 hoặc chỗ khác, ko phải chờ.
+Chỗ nhận hồ sơ F5 riêng biệt với chỗ nhận hs E7 hoặc chỗ khác, ko phải chờ. ( C building )
 
 Cần chuẩn bị cmt của người bảo lãnh, nếu ko tiện cho, có thể bảo fax sau.
 
