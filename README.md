@@ -20,6 +20,8 @@ Cần chuẩn bị cmt của người bảo lãnh, nếu ko tiện cho, có th�
 
 Tốt nhất là thời hạn hết visa tạm thời là hơn 6 tháng.
 
+Cuc xnc se nhan bo sung giay to, 추가 보완서류 안내드립니다. -업체 4대보험가입자명부
+
 ## [in giấy chứng nhận đăng ký người nước ngoài FREE trên web minwon.go.kr] 
 
 http://hanquocngaynay.info/visa/in-giay-xac-nhan-nguoi-nuoc-ngoai-2/
