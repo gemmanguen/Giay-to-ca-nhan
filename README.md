@@ -30,6 +30,31 @@ http://hanquocngaynay.info/visa/in-giay-xac-nhan-nguoi-nuoc-ngoai-2/
 
 https://diemtinhanquoc.com/2019/02/19/tong-quan-4-loai-bao-hiem-xa-hoi-lon-o-han-quoc-4%EB%8C%80%EB%B3%B4%ED%97%98-cach-tinh-so-tien-bao-hiem-can-dong-theo-thu-nhap/amp/
 
+## [국민연금]
+
+Liên quan đến việc đóng bảo hiểm 국민연금 thì hôm nay người ở công ty đăng ký cho em xong thì có hỏi nhân viên bên đó. Người ta bảo là nếu đi về nước hẳn thì sẽ đươc nhận lại toàn bộ số tiền đã đóng (bao gồm tiền công ty đóng cho mình)
+
+Điều kiện
+
+- Về hẳn
+- 
+- Đóng bảo hiểm đầy đủ
+- 
+Cách nhận
+
+- Đăng ký 해외이주신고
+- 
+- 
+Số tiền nhận lại
+- Số tiền đã đóng + lãi - thuế.
+- 
+Toàn bộ số tiền sẽ được chuyển vào tài khoản chính chủ.
+
+[ Ai hóng được thông tin gì thì chia sẻ thêm ạ ]
+
+Chúc mọi người sức khỏe ^^.
+
+
 ## F5-15
 
 Documents F5-15 2021:
