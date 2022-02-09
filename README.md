@@ -6,6 +6,8 @@ https://hoinhaphanquoc.com/huong-dan-thu-tuc-lam-the-xanh-cho-nguoi-tot-nghiep-t
 
 https://hanquocngaynay.info/visa/f5-15/
 
+https://immikorea.com/en/f-5-basic-requirements-for-permanent-residency-in-korea/
+
 https://www.visaskorea.com/f-5-9-f-5-15-residency-visa/
 
 Em xin them o cty giay
