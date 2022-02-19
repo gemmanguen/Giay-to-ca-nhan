@@ -1,5 +1,35 @@
 # Giay-to-ca-nhan
 
+## CÁCH ĐĂNG KÝ TÁI NHẬP CẢNH ONLINE
+
+CÁCH ĐĂNG KÝ TÁI NHẬP CẢNH ONLINE
+
+Tất cả các bước mình đã ghi chú cụ thể và sắp xếp lần lượt, mọi người làm theo như vậy là oki ạ.
+NOTE:
+# Đăng ký trước ít nhất 4 ngày từ ngày xuất cảnh.
+# Mn cần có tài khoản trên Hikorea (전자민원). Nếu chưa có thì 민원신청 trước.
+# Lưu sẵn giấy 예방접종증명서 (m xin ở 주민센터 gần nhà) & giấy 재입국 시 유의사항 안내 및 확인 동의서 (m đính kèm ảnh 12, mn in ra ký rồi scan lại là được)
+Vì bước cuối cần tải 2 giấy đó lên.
+# Đăng ký miễn phí với người đã hoàn thành tiêm vaccine (tiêm xong mũi 2 trên 14 ngày hoặc tiêm mũi 3 tính luôn từ ngày tiêm)
+Còn người chưa tiêm thì m thấy ghi phí 24.800w thì phải.
+# Đăng ký hôm trước hôm sau nhận được tin nhắn có kết quả luôn.
+M tìm trên hội cách đăng ký mà không thấy nên chia sẻ cho mn ai đang cần thì làm theo để tiết kiệm thời gian, đỡ phải mò như m^^
+Chúc mn nhiều may mắn và vui vẻ đón tết ấm áp bên gia đình.
+
+# Đăng ký tái nhập cảnh online rồi thì cần phải có gì khi quay lại Hàn???
+
+Bài trước mình có chia sẻ cho mn cách đăng ký tái nhập cảnh online trước khi về VN. Như vậy mn có thể xuất cảnh oki không vấn đề gì~
+Nhưng khi check in ở đầu VN để quay lại Hàn thì quầy làm thủ tục yêu cầu phải có giấy tái nhập cảnh (Ảnh 1). Nếu không sẽ không được làm thủ tục check in.
+Mình cũng có vào phần kiểm tra thông tin nhưng không thấy phần in giấy đó ở đâu, đưa cho họ xem ảnh m đăng nhập trực tiếp trên hikorea có hiện 재입국허가 chuyển sang cả tiếng anh(Ảnh 2) vậy mà họ không chịu, nói cái đó không phải (may mà có bạn giúp làm thủ tục) qua tới Hàn rồi mở vào xem lại vẫn không biết in giấy tái nhập cảnh chỗ nào, cho đến khi hỏi bạn m mới thông nên chia sẻ để cho mn không gặp phải trường hợp như mình nữa.
+(Các bước cụ thể làm theo ảnh đính kèm)
+Mn nhớ chuẩn bị trước giấy đó để làm thủ tục ở sân bay cho nhanh gọn nhé.
+Ngoài ra các bạn cần chuẩn bị:
+Giấy test Covid Real time RT-PCR bản có tiếng anh trong vòng 48 tiếng tính từ thời gian test tới thời điểm nhập cảnh vào Hàn Quốc (giấy test PCR gồm đầy đủ thông tin họ tên, ngày tháng năm sinh, số hộ chiếu và kết quả âm tính Negative)
+Giấy xác nhận hoàn thành tiêm vaccine
+Hộ chiếu có visa hoặc cmt người nước ngoài còn hạn.
+Nếu mn muốn biết về quá trình nhập cảnh tại Hàn, cách di chuyển về địa điểm test covid, chi phí và theo dõi cách ly tại nhà ntn thì thả nhiều tym tym tym & cmt điều mn muốn được chia sẻ nhé~
+
+
 ## F5 CHO TIEN SY TAI HAN QUOC
 
 https://hoinhaphanquoc.com/huong-dan-thu-tuc-lam-the-xanh-cho-nguoi-tot-nghiep-tien-si-tai-han-quoc-f5-15-va-nuoc-ngoai-f-5-9
