@@ -1,6 +1,10 @@
 # Giay-to-ca-nhan
 
+## Gia han ho chieu
 
+# https://www.facebook.com/groups/hanquocngaynay/permalink/3681156321904684/
+
+# https://vnembassy.setmore.com/
 
 ## [in giấy chứng nhận đăng ký người nước ngoài FREE trên web minwon.go.kr] 
 
@@ -19,21 +23,19 @@ Liên quan đến việc đóng bảo hiểm 국민연금 thì hôm nay người
 - Về hẳn
 - 
 - Đóng bảo hiểm đầy đủ
-- 
+  
 Cách nhận
 
 - Đăng ký 해외이주신고
-- 
-- 
+  
 Số tiền nhận lại
 - Số tiền đã đóng + lãi - thuế.
-- 
+  
 Toàn bộ số tiền sẽ được chuyển vào tài khoản chính chủ.
 
 [ Ai hóng được thông tin gì thì chia sẻ thêm ạ ]
 
 Chúc mọi người sức khỏe ^^.
-
 
 https://hanquoc.kr/thu-tuc-xin-visa-f-5-tai-han-quoc/
 
@@ -85,15 +87,10 @@ Bài này được post trên page Hàn Quốc Ngày Nay, đồng thời ở 4 n
 - Hàn Quốc Ngày Nay
 - Hội E7 tại Hàn Quốc
 - Hội F2 tại Hàn Quốc
-- 
 
 http://hanquocngaynay.info/visa/chung-thuc-giay-to-o-viet-nam-su-dung-o-han-quoc/
 
 http://hanquocngaynay.info/visa/ly-lich-tu-phap/
-
-## Gia han ho chieu
-
-# https://www.facebook.com/groups/hanquocngaynay/permalink/3681156321904684/
 
 # Cấp lại cmt hết hạn: https://luatminhkhue.vn/xin-cap-lai-chung-minh-nhan-dan-da-het-han-thi-lam-o-dau-.aspx
 
@@ -106,8 +103,6 @@ http://hanquocngaynay.info/visa/ly-lich-tu-phap/
  - luật mới như hôm qua mình đi là cần có lltp, vì chưa ra 근로소득 2020 nên bạn có thể nộp 근로소득 2019 và 원천징수영수증 của 2020 có đóng dấu của công ty nữa nhé!
 
 https://www.facebook.com/groups/hoif2/
-
-
 
 ##
 
