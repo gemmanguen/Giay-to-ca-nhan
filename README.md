@@ -2,9 +2,11 @@
 
 ## Gia han ho chieu
 
-# https://www.facebook.com/groups/hanquocngaynay/permalink/3681156321904684/
+https://www.facebook.com/groups/hanquocngaynay/permalink/3681156321904684/
 
-# https://vnembassy.setmore.com/
+https://vnembassy.setmore.com/
+
+https://vnembassy-seoul.mofa.gov.vn/
 
 ## [in giấy chứng nhận đăng ký người nước ngoài FREE trên web minwon.go.kr] 
 
